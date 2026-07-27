@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分57秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>风电行业景气度回升：整机、零部件的盈利改善逻辑</h3><br><p>隆基绿能底部抬升，上升通道内的低吸窗口显现。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>电源芯片价格上涨7%，模拟芯片板块景气回升</h3><br><p>北向资金大额增持天齐锂业，锂矿龙头外资持仓环比大增。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>全球光伏装机量突破18亿千瓦，清洁能源普及加速</h3><br><p>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>全国全民健身日活动启动，全国超万场赛事覆盖千万群众</h3><br><p>头部机构组团到访中药创新药标的，医保谈判结果超预期。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>恒瑞医药站稳60日线，中期趋势逐步向好</h3><br><p>宝钢股份产品结构升级：高端钢铁的盈利稳定性分析。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>上海建工涨超2.6%，长三角基建订单回暖</h3><br><p>陕西历史博物馆暑期预约一票难求，单日接待量突破4万人次。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>中国通号高铁信号订单高增，单季业绩预告超预期</h3><br><p>中国花游队世锦赛集体项目夺冠，实现金牌零的突破。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>储能电池价格小幅上涨3%，储能产业链价格体系企稳</h3><br><p>北方稀土异动拉升5.4%，稀土产品价格反弹。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>全国居民人均可支配收入同比增长6.2%，跑赢GDP增速</h3><br><p>大模型在水利领域应用，洪水预警提前量提升至72小时。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>保险资管扎堆调研绿电运营标的，电价弹性空间引热议</h3><br><p>北方稀土行业地位：稀土全产业链龙头的政策红利。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>长江流域水质优良断面比例达99%，生态环境持续改善</h3><br><p>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>高管团队集体增持短视频出海标的，合计增持超9000万</h3><br><p>多氟多六氟磷酸锂布局：锂电材料细分龙头的周期成长。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>预制菜产业标准出台，预制菜板块走强</h3><br><p>长电科技先进封装技术：全球封测龙头的份额提升逻辑。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>QFII新进跨境电商龙头，海外机构看好出口高增长逻辑</h3><br><p>中国与海湾国家合作深化，能源、金融多领域协同发展。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>美联储开启降息周期，人民币汇率迎来趋势性升值</h3><br><p>中际旭创800G光模块放量，前三季度业绩预增130%。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>知名私募调研钙钛矿设备标的，核心设备交付周期缩短</h3><br><p>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>低空经济发展规划出台，低空经济标的拉升</h3><br><p>10年期国债收益率下行，保险板块配置压力边际缓解。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>全面降准叠加LPR下调，市场流动性环境显著优化</h3><br><p>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>AI应用落地加速：办公、安防、教育的商业化机会</h3><br><p>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>网络视听内容监管优化，长视频平台标的拉升</h3><br><p>大熊猫野生种群数量突破2000只，受威胁等级下调至易危。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>德业股份储能逆变器优势：民营新能源企业的突围逻辑</h3><br><p>养老金新进光伏逆变器标的，海外市占率提升获长期配置。<br><br> | 来源：<code>www.nimendong.com
