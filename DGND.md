@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时20分02秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国臭氧浓度同比下降5%，夏季蓝天数量明显增加</h3><br><p>上汽集团海外市场布局：传统车企出口的长期增长逻辑。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>江淮汽车异动拉升4.7%，与华为合作车型落地加速</h3><br><p>游资知名席位打板长安汽车2.8亿，整车标的获短线资金热炒。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>全球6G研发进入关键阶段，多国联合推进技术标准制定</h3><br><p>央行下调MLF利率10BP，货币政策宽松力度加大。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>锰价上涨8%，锰酸锂材料板块迎来行情</h3><br><p>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>中国中冶冶金工程优势：新能源冶金赛道的领先地位</h3><br><p>洽洽食品坚果品类拓展：传统炒货企业的成长第二曲线。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>国际油价回落至75美元/桶，地缘冲突溢价逐步消化</h3><br><p>敦煌莫高窟数字展示中心升级，游客沉浸式体验千年壁画。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>上半年全国医药制造业利润同比增长13%，创新药贡献突出</h3><br><p>国产大飞机C919批量交付，民航产业链标的上涨。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>大股东耗资6.3亿增持数字人民币标的，助力场景覆盖扩张</h3><br><p>全国危险废物处置能力突破2亿吨/年，安全处置率100%。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>5年期LPR下调15BP，地产链估值修复行情延续</h3><br><p>尾矿资源综合利用政策，尾矿回收板块走强。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>温氏股份禽畜盈利双增，前三季度业绩预增超60%</h3><br><p>重庆洪崖洞暑期日均游客量突破25万人次，网红城市持续火爆。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>中国中冶放量上涨2.9%，新能源冶金订单爆发</h3><br><p>外资持续流入中际旭创，光模块龙头外资持仓占比突破6%。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>赣锋锂业回收业务布局：锂电回收的长期成长空间解析</h3><br><p>天顺风能风电塔架布局：风电零部件龙头的全球份额。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>比亚迪Q3销量破百万，业绩预告同比翻倍</h3><br><p>中国垒球队获得亚运会银牌，项目普及度快速提升。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>长城汽车坦克系列放量，单季业绩预告超预期</h3><br><p>吉利汽车新能源占比超50%，前三季度业绩预增超30%。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>中国中车涨超3.3%，海外轨交订单持续落地</h3><br><p>国内大模型出海东南亚，服务超百万当地企业。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升</h3><br><p>紫金矿业铜金产量超预期，前三季度业绩预增80%。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>地方国资战略入股汽车轻量化标的，助力一体化压铸产能释放</h3><br><p>养老金现身光刻胶标的，ArF胶通过客户验证进度超预期。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>科达利放量拉升4.7%，锂电池结构件订单饱满</h3><br><p>涪陵榨菜产品提价能力：细分赛道龙头的定价权解析。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>全球无人机市场规模突破1500亿美元，行业应用爆发</h3><br><p>江特电机锂矿资源优势：云母提锂龙头的盈利弹性解析。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>恒力石化异动拉升3.8%，炼化行业盈利边际改善</h3><br><p>生活用纸价格上调4%，生活用纸龙头盈利提升。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍</h3><br><p>登海种业玉米种子优势：国内玉米种子赛道的龙头价值。<br><br> | 来源：<code>www.cncbsc.com
