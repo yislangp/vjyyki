@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分47秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国电建新能源电站运营：电力工程龙头的第二成长曲线</h3><br><p>福州三坊七巷暑期客流超1500万，闽派文旅产品热销。<br><br> | 来源：<code>https://91wangcn.com.cn
+</code></p><br><br><h3>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化</h3><br><p>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户。<br><br> | 来源：<code>https://91wangguanwang.com.cn
+</code></p><br><br><h3>6G技术研发加速：通信设备、射频器件的布局窗口</h3><br><p>工业互联网平台落地，工业数字化标的全线拉升。<br><br> | 来源：<code>https://91wangye.com.cn
+</code></p><br><br><h3>理想汽车涨超8.5%，L系列车型月销破4万</h3><br><p>基金公司集体到访建筑光伏一体化标的，订单爆发式增长。<br><br> | 来源：<code>https://91wangyeliulanqi.cn
+</code></p><br><br><h3>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善</h3><br><p>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑。<br><br> | 来源：<code>https://91wangyeliulanqimianfeiban.com.cn
+</code></p><br><br><h3>镁价单月上涨18%，镁合金板块迎来产品涨价行情</h3><br><p>锂价连续反弹三个月，锂矿板块集体走强。<br><br> | 来源：<code>https://91wangzhandaquan.cn
+</code></p><br><br><h3>国内大模型产业联盟成立，联合攻关核心技术短板</h3><br><p>大北农异动拉升3.7%，种业业务贡献新增量。<br><br> | 来源：<code>https://91wangzhi.com.cn
+</code></p><br><br><h3>上半年全国网上零售额同比增长9.5%，直播电商贡献突出</h3><br><p>5年期LPR下调带动居民购房意愿回升，地产销售边际改善。<br><br> | 来源：<code>https://91xin.com.cn
+</code></p><br><br><h3>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复</h3><br><p>美联储降息周期开启，北向资金单周净流入超300亿。<br><br> | 来源：<code>https://91zaixian-guankan.com.cn
+</code></p><br><br><h3>电力辅助服务市场扩容，储能运营标的全线异动</h3><br><p>平遥古城暑期游客量突破150万人次，晋商文化体验游火热。<br><br> | 来源：<code>https://91zaixianguankan.cn
+</code></p><br><br><h3>外资机构席位净买入双汇发展6400万，肉制品龙头获加仓</h3><br><p>海洋牧场建设规划，海洋渔业板块集体上涨。<br><br> | 来源：<code>https://91zh.com.cn
+</code></p><br><br><h3>大模型轻量化技术突破，1B参数模型效果追平百亿级模型</h3><br><p>全国碳排放权交易市场成交额突破200亿元，碳定价机制完善。<br><br> | 来源：<code>https://91zhuiju.com.cn
+</code></p><br><br><h3>人形机器人核心标的启动申购，发行价对应估值具备吸引力</h3><br><p>百亿私募组团调研生物育种标的，玉米种子推广面积超预期。<br><br> | 来源：<code>https://9570-jinguan-zhijia.com
+</code></p><br><br><h3>北向资金单日买入陕西煤业6800万，煤炭龙头获外资流入</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>https://9570-login-home.com
+</code></p><br><br><h3>医疗机器人纳入医保，医疗机器人板块全线走强</h3><br><p>产业链产品涨价类（100个）。<br><br> | 来源：<code>https://aaarihan.cn
+</code></p><br><br><h3>乳制品质量升级政策，乳业龙头标的全线异动</h3><br><p>全国儿童疫苗接种率保持99%以上，传染病发病率降至历史最低。<br><br> | 来源：<code>https://aaawang.com.cn
+</code></p><br><br><h3>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%</h3><br><p>万科A存量资产运营：商业地产+物流地产的第二曲线。<br><br> | 来源：<code>https://ai-ai-shipin-wangzhan.com.cn
+</code></p><br><br><h3>西部大开发新规划出台，西部基建标的全线拉升</h3><br><p>全球卫星互联网用户突破1亿，太空经济进入爆发期。<br><br> | 来源：<code>https://ai-aishipin.com.cn
+</code></p><br><br><h3>苏炳添复出百米跑出9秒98，重返世界顶尖选手行列</h3><br><p>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿。<br><br> | 来源：<code>https://ai-fengyue.com.cn
+</code></p><br><br><h3>全球机器人装机量突破500万台，工业自动化加速普及</h3><br><p>海外对冲基金集中调研CXO龙头，新签订单增速超预期。<br><br> | 来源：<code>https://ai-weinai.com.cn
