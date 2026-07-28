@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分25秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>企业中长期贷款增速回升，宽信用效果逐步显现</h3><br><p>多模态大模型实现4K视频实时生成，10秒产出高清短视频。<br><br> | 来源：<code>https://zaixianlu.cn
+</code></p><br><br><h3>大模型在环保领域应用，污染源识别准确率超96%</h3><br><p>机构专用席位净买入许继电气5800万，特高压龙头获加仓。<br><br> | 来源：<code>https://zaixianri.com.cn
+</code></p><br><br><h3>外资机构席位大额买入药明康德5亿，CXO赛道获外资加仓</h3><br><p>中新（新加坡）自贸协定升级，服务贸易开放度大幅提升。<br><br> | 来源：<code>https://zaixianriben.com.cn
+</code></p><br><br><h3>宝钢股份高端钢铁布局：国内钢铁龙头的产品结构升级</h3><br><p>特高压工程集中获批，电网设备板块全线异动。<br><br> | 来源：<code>https://zenmezuoaishipin.com.cn
+</code></p><br><br><h3>QFII集中调研国产EDA企业，全流程工具突破引关注</h3><br><p>伊利股份产品矩阵：全品类乳制品的市场覆盖优势。<br><br> | 来源：<code>https://zh-17c.cn
+</code></p><br><br><h3>全国农业面源污染治理成效显著，化肥使用量连续11年下降</h3><br><p>巴西经济复苏，二季度农业工业双增长。<br><br> | 来源：<code>https://zh-91dongman.com.cn
+</code></p><br><br><h3>长征国家文化公园全面建成，红色旅游年接待人次突破15亿</h3><br><p>国产动画剧集全网播放量突破300亿，传统文化元素成爆款密码。<br><br> | 来源：<code>https://zh-baoyu.com.cn
+</code></p><br><br><h3>中科院紫东太初大模型2.0发布，全模态能力国际领先</h3><br><p>京沪高铁路网资产价值：核心高铁线路的长期盈利逻辑。<br><br> | 来源：<code>https://zh-bytv.com.cn
+</code></p><br><br><h3>5年期LPR下调带动居民购房意愿回升，地产销售边际改善</h3><br><p>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%。<br><br> | 来源：<code>https://zh-caoliushequ.cn
+</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>降准定向支持科技创新，科技成长板块获流动性利好。<br><br> | 来源：<code>https://zh-chengren-yingyuan.com.cn
+</code></p><br><br><h3>恩捷股份隔膜技术壁垒：锂电池隔膜全球龙头的份额优势</h3><br><p>全国博物馆暑期接待人次破2亿，研学游订单同比翻倍。<br><br> | 来源：<code>https://zh-chengrenmanhua.com.cn
+</code></p><br><br><h3>登海种业玉米种子优势：国内玉米种子赛道的龙头价值</h3><br><p>隆基绿能底部抬升，上升通道内的低吸窗口显现。<br><br> | 来源：<code>https://zh-dapigu.com.cn
+</code></p><br><br><h3>贵州茅台品牌价值深度解析：白酒龙头的定价权逻辑</h3><br><p>中国女排世界联赛总决赛夺冠，重返世界第一排名。<br><br> | 来源：<code>https://zh-diyici.com.cn
+</code></p><br><br><h3>2026年AI产业赋能经济增长超万亿，成为数字经济核心引擎</h3><br><p>首套房贷款利率突破2.9%，刚需购房成本创历史新低。<br><br> | 来源：<code>https://zh-fancha.com.cn
+</code></p><br><br><h3>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升</h3><br><p>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露。<br><br> | 来源：<code>https://zh-fanhao.com.cn
+</code></p><br><br><h3>家电出口超预期：白电、厨电的海外市场增量空间</h3><br><p>北向资金连续加仓隆基绿能，光伏龙头获外资长线布局。<br><br> | 来源：<code>https://zh-gaypian.com.cn
+</code></p><br><br><h3>钠离子电池实现装车应用，钠电池产业链全线爆发</h3><br><p>深股通席位单日买入海天味业6100万，调味品标的增持。<br><br> | 来源：<code>https://zh-guochan-zaixian-guankan.com.cn
+</code></p><br><br><h3>上汽集团放量上涨3.5%，新能源汽车出口超预期</h3><br><p>德业股份异动拉升6.8%，储能逆变器盈利超预期。<br><br> | 来源：<code>https://zh-h-manhua.com.cn
+</code></p><br><br><h3>洋河股份异动拉升4.0%，梦之蓝系列动销超预期</h3><br><p>全国戒烟服务门诊覆盖所有三甲医院，吸烟率持续下降。<br><br> | 来源：<code>https://zh-haijiaoshequ.com.cn
+</code></p><br><br><h3>银保监会出台新政，进一步降低实体经济融资成本</h3><br><p>航发动力技术壁垒：航空发动机国产替代的核心路径。<br><br> | 来源：<code>https://zh-heiliaowang.cn
