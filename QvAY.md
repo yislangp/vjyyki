@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>意大利经济增速超预期，旅游业拉动经济强劲增长</h3><br><p>陕西煤业放量上涨3.1%，煤炭供需格局保持稳健。<br><br> | 来源：<code>https://nantonghucao.com.cn
+</code></p><br><br><h3>基金公司集体到访人形电机龙头，力矩电机产能释放数据</h3><br><p>国电南瑞电网自动化优势：国内电网信息化龙头的价值。<br><br> | 来源：<code>https://nantongwangwang.com.cn
+</code></p><br><br><h3>薯片产品价格上调4%，零食板块迎来涨价催化</h3><br><p>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期。<br><br> | 来源：<code>https://nencao-yingyuan.cn
+</code></p><br><br><h3>瓦楞纸价格上调4%，造纸板块迎来全面涨价催化</h3><br><p>陕西煤业高股息兑现，单季业绩预告超预期。<br><br> | 来源：<code>https://nencaowang.com.cn
+</code></p><br><br><h3>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%</h3><br><p>外资机构集中调研存储芯片龙头，海外订单情况成焦点。<br><br> | 来源：<code>https://new-19-sports.com.cn
+</code></p><br><br><h3>中天科技放量上涨4.7%，海缆+储能双轮驱动</h3><br><p>二十国集团峰会召开，达成全球经济治理新共识。<br><br> | 来源：<code>https://new-850-official.com
+</code></p><br><br><h3>龙江交通放量上涨1.8%，东北区域车流量边际改善</h3><br><p>知名私募调研卫星互联网标的，低轨卫星组网计划披露。<br><br> | 来源：<code>https://new-8x8.com.cn
+</code></p><br><br><h3>央行降准降息组合拳落地，A股市场迎来全面估值修复</h3><br><p>中国女子曲棍球队闯入世界联赛总决赛，实力稳步回升。<br><br> | 来源：<code>https://new-9191.com.cn
+</code></p><br><br><h3>璞泰来负极材料布局：锂电材料龙头的全产业链协同</h3><br><p>机构资金净买入亿纬锂能4亿，储能龙头获长线资金加仓。<br><br> | 来源：<code>https://new-91cc.com.cn
+</code></p><br><br><h3>北交所改革政策落地，北交所概念股集体走强</h3><br><p>超170家机构到访PCB龙头，AI服务器板订单同比翻倍。<br><br> | 来源：<code>https://new-91cn.com.cn
+</code></p><br><br><h3>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性</h3><br><p>保险资管扎堆调研机器人减速器标的，产能释放进度披露。<br><br> | 来源：<code>https://new-91com.com.cn
+</code></p><br><br><h3>海尔智家全球化品牌布局：多品牌矩阵下的全球份额扩张</h3><br><p>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平。<br><br> | 来源：<code>https://new-91dongman.com.cn
+</code></p><br><br><h3>全国森林覆盖率提升至24.5%，年新增造林面积超600万公顷</h3><br><p>特斯拉4680电池量产提速，锂电结构件标的集体上涨。<br><br> | 来源：<code>https://new-91mianfei.com.cn
+</code></p><br><br><h3>北向资金连续增持工业母机龙头，高端制造获外资持续流入</h3><br><p>海洋牧场建设规划，海洋渔业板块集体上涨。<br><br> | 来源：<code>https://new-91n.com.cn
+</code></p><br><br><h3>国内在线旅游平台暑期订单破5亿，技术赋能提升预订效率</h3><br><p>北向资金大额扫货万华化学1.3亿，化工龙头获外资流入。<br><br> | 来源：<code>https://new-91ncom.com.cn
+</code></p><br><br><h3>人民币汇率大幅升值，航空造纸板块集体上涨</h3><br><p>央行表态保持流动性合理充裕，后续政策工具储备充足。<br><br> | 来源：<code>https://new-91tv.com.cn
+</code></p><br><br><h3>固德威放量上涨7.2%，户用储能业务爆发式增长</h3><br><p>中国现代五项队世锦赛夺得金牌，全能项目实现突破。<br><br> | 来源：<code>https://new-91yingshi.com.cn
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>华友钴业异动拉升5.3%，新能源金属需求回暖。<br><br> | 来源：<code>https://new-aifengyue.com.cn
+</code></p><br><br><h3>紫金矿业全球资源布局：铜金龙头的长期产量增长逻辑</h3><br><p>存款利率市场化改革深化，银行负债成本持续优化。<br><br> | 来源：<code>https://new-aiye.net.cn
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>铂价上涨10%，燃料电池催化剂板块迎来涨价催化。<br><br> | 来源：<code>https://new-aqd.org.cn
