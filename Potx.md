@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分45秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>降准释放长期资金支持基建，建筑板块迎来估值修复</h3><br><p>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露。<br><br> | 来源：<code>https://tongrenbenzi.com.cn
+</code></p><br><br><h3>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发</h3><br><p>中国-东盟自贸区3.0版谈判完成，贸易便利化升级。<br><br> | 来源：<code>https://tongrendongmanwangzhan.org.cn
+</code></p><br><br><h3>全国快递包装绿色转型推进，可降解材料使用率达85%</h3><br><p>动力电池回收管理办法出台，锂电回收板块全线异动。<br><br> | 来源：<code>https://tongrenxiaoshuo.com.cn
+</code></p><br><br><h3>多模态大模型实现4K视频实时生成，10秒产出高清短视频</h3><br><p>国内大模型企业估值破万亿，30家企业跻身独角兽行列。<br><br> | 来源：<code>https://tongxue-mama-huaiyun-ting-daduzi.com.cn
+</code></p><br><br><h3>全国全民健身日活动覆盖超亿人次，群众体育热情高涨</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>https://tongyanjuru.com.cn
+</code></p><br><br><h3>海上风电大基地集中开工，海缆产业链标的上涨</h3><br><p>中国高尔夫球业余选手夺得职业赛事冠军，人才储备充足。<br><br> | 来源：<code>https://top-19-vip.com.cn
+</code></p><br><br><h3>东方电气风电设备订单爆发，前三季度业绩预增超35%</h3><br><p>北向资金连续调研后举牌智能电网标的，外资持续流入。<br><br> | 来源：<code>https://top-bowansports.com.cn
+</code></p><br><br><h3>北向资金大额扫货天合光能7100万，光伏龙头获外资流入</h3><br><p>中国书法申遗成功，传统艺术走向世界舞台。<br><br> | 来源：<code>https://top-haobo-sports.com.cn
+</code></p><br><br><h3>地震应急响应升级，灾后重建板块异动</h3><br><p>高管团队集体增持短视频出海标的，合计增持超9000万。<br><br> | 来源：<code>https://top-jinbaosports.com.cn
+</code></p><br><br><h3>天齐锂业债务优化：高负债锂矿龙头的财务健康度改善</h3><br><p>赣锋锂业固态电池布局：全球锂矿龙头的技术储备优势。<br><br> | 来源：<code>https://top-kaiyundianjing.com.cn
+</code></p><br><br><h3>北向资金连续加仓隆基绿能，光伏龙头获外资长线布局</h3><br><p>5年期LPR超预期下调，地产链迎来全面行情催化。<br><br> | 来源：<code>https://top-manguan-sports.com.cn
+</code></p><br><br><h3>人民币汇率大幅升值，航空造纸板块集体上涨</h3><br><p>北京建工放量上涨3.0%，京津冀基建项目落地加速。<br><br> | 来源：<code>https://top-oubao-sports.com.cn
+</code></p><br><br><h3>中国男子跳高选手跳出2米40，打破尘封28年全国纪录</h3><br><p>隆基绿能底部抬升，上升通道内的低吸窗口显现。<br><br> | 来源：<code>https://top-worldcup-betting.com
+</code></p><br><br><h3>通威股份低位反弹，光伏产业链盈利预期改善</h3><br><p>全国羽毛球业余赛参赛人数破50万，民间高手层出不穷。<br><br> | 来源：<code>https://top-worldcup-odds.com
+</code></p><br><br><h3>别把运气当成能力：短期靠运气赚的钱，迟早会凭实力亏回去</h3><br><p>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿。<br><br> | 来源：<code>https://top-yytiyu.com.cn
+</code></p><br><br><h3>多氟多六氟磷酸锂布局：锂电材料细分龙头的周期成长</h3><br><p>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑。<br><br> | 来源：<code>https://toupai-shipin.com.cn
+</code></p><br><br><h3>央行下调再贷款再贴现利率，小微和三农融资成本下行</h3><br><p>隆平高科种业业务爆发，前三季度业绩预增超50%。<br><br> | 来源：<code>https://toupai-zipai.com.cn
+</code></p><br><br><h3>五粮液中秋动销超预期，单季业绩预告超预期</h3><br><p>三一重工放量上涨，工程机械行业景气度边际改善。<br><br> | 来源：<code>https://toupaizipai.cn
+</code></p><br><br><h3>跨境电商出口高增，跨境电商板块全线爆发</h3><br><p>山西汾酒全国化路径：清香型白酒龙头的全国扩张逻辑。<br><br> | 来源：<code>https://toupaizipai.com.cn
+</code></p><br><br><h3>皖通高速涨超2.1%，安徽区域路网盈利稳健</h3><br><p>大模型轻量化部署方案成熟，中小企业接入成本下降90%。<br><br> | 来源：<code>https://tu-tu-jiang.com.cn
